@@ -1,1 +1,0 @@
-# github-ms-people-art
